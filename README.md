@@ -1,1 +1,0 @@
-# Duck_Pruebam6xveq
